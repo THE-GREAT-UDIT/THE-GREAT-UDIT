@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @THE-GREAT-UDIT
 - 👀 I’m interested in !
 - 🌱 I’m currently learning !
-- 💞️ I’m looking to collaborate on python..!
+- 💞️ I’m looking to collaborate on Swift..!
 - 📫 How to reach me (TEAM_RISHI_).. ?
 - 😉 My instagram account @the_great_udit..!
 
