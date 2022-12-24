@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @THE-GREAT-UDIT
+- 👋 Hi, I’m MR UDIT JAIN (RISHI)
 - 😎 CEO OF DATASOFTWARE PVT LTD (DSPT)..!
 - 👀 I’m interested in !
 - 🌱 I’m currently learning !
