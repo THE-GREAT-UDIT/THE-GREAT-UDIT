@@ -1,5 +1,5 @@
 - 👋 Hi, I’m MR UDIT JAIN (RISHI)
-- 😎 CEO OF DATASOFTWARE PVT LTD (DSPT)..!
+- 😎 DATASOFTWARE PVT LTD (DSPL)..!
 - 👀 I’m interested in !
 - 🌱 I’m currently learning !
 - 💞️ I’m looking to collaborate on Swift..!
